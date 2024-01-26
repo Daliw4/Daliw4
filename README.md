@@ -1,0 +1,6 @@
+loıqdsıuclı3jrelfj4tr
+rtlıkgrştokg
+5şlkgl5yğkgşo5kytşg
+5tyklgş6iyşolkgi6şylkg6üy
+yt6pgy6i,ghş
+y6lü,gy6h
